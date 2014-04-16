@@ -1,1 +1,1 @@
-We love Nuannuan!
+Yes! We love Nuannuan!
